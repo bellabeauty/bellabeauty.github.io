@@ -1,7 +1,7 @@
 # Bella Beauty
 
 ## Hair and Skin Care Beauty Salon.
-Hi I am Vaishalli, I am a CA Ceritfied Licenced Cosmetologist, I have 10+ years experience in Beauty Salon and now I run a beauty salon from home. I Provide Hair and Skin care Services to clients. I am Open for 6 Days in a Week by appointments only except for Saturday.
+Hi I am Vaishalli, I am a CA Ceritfied Licenced Cosmetologist, I have 10+ years experience in Beauty Salon and now I run a beauty salon from home. I Provide Hair and Skin care services to clients. I am Open for 6 Days in a Week by appointments only except for Saturday.
 
 Please have a Look of Services that I offer and feel free to contact me if you have any questions.
 
