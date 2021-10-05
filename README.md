@@ -1,7 +1,7 @@
 # Bella Beauty
 
 ## Hair and Skin Care Beauty Salon.
-Hi I am Vaishalli, I am a CA Ceritfied Licenced Cosmetologist, I have 10+ years experience in Beauty Salon and now I run a beauty salon from home. I Provide Hair and Skin care services to clients. I am Open for 6 Days in a Week by appointments only except for Saturday.
+Hi I am Vaishalli, I am a CA Ceritfied Licenced Cosmetologist, I have 13+ years experience in Beauty Industry and now I run a beauty salon from home. I Provide Hair and Skin care services to clients. I am open for 6 Days in a Week by appointments only except for Saturday.
 
 Please have a Look of Services that I offer and feel free to contact me if you have any questions.
 
@@ -18,11 +18,11 @@ Please have a Look of Services that I offer and feel free to contact me if you h
 | Upper lip waxing | $7 |
 | Chin waxing | $7 |
 | Chin threading | $5 |
-| Whole Face threading | $25 | 
-| Anti aging Collagen facial with Microdermabrasion OR Anti tan facial(Skinfood) | $45 |
+| Whole Face threading | $30 | 
+| Anti aging Collagen facial with Microdermabrasion | $45 |
 | Oxygen Infusion facial with LED light therapy | $45 |
 | Fruit Facial | $35 |
-| European Facial with Blackhead Removal and galvanic treatment (Dermalogica/Shehenaz Gold/Skin brightening Herbal) | $35 |
+| European Facial with Blackhead Removal and galvanic treatment (Dermalogica/Shehenaz Gold/Anti tan facial(Skinfood) | $35 |
 | Bleach application in facial | $5 |
 | Only bleach application no facial | $12 |
 | Haircolor Application/Henna Application (with customer hair color/Henna ) (No Hair wash ) | $20 |
