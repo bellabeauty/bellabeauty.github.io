@@ -23,8 +23,8 @@ Please have a Look of Services that I offer and feel free to contact me if you h
 | European Facial with Blackhead Removal (Dermalogica/Shehenaz Gold) | $35 |
 | Anti tan facial(Skinfood) | $35 |
 | Brighting facial | $35 |
-| Anti aging Collagen facial with Microdermabrasion | $45 |
-| Oxygen Infusion facial with LED light therapy (Anti aging/Deep Hydrating) | $45 |
+| Anti aging Collagen facial with Microdermabrasion | $50 |
+| Oxygen Infusion facial with LED light therapy (Anti aging/Deep Hydrating) | $50 |
 | Bleach application in facial | $7 |
 | Only bleach application no facial | $15 |
 | Haircolor Application/Henna Application (with customer hair color/Henna ) (No Hair wash ) | $20 |
