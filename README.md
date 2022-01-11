@@ -20,7 +20,7 @@ Please have a Look of Services that I offer and feel free to contact me if you h
 | Chin threading | $5 |
 | Whole Face threading | $30 | 
 | Fruit Facial | $35 |
-| European Facial with Blackhead Removal (Dermalogica/Shehenaz Gold) | $35 |
+| European Facial with Blackhead Removal (Dermalogica/Shehenaz Gold) | $40 |
 | Anti tan facial(Skinfood) | $40 |
 | Brighting facial | $35 |
 | Anti aging Collagen facial with Microdermabrasion | $50 |
@@ -35,7 +35,7 @@ Please have a Look of Services that I offer and feel free to contact me if you h
 | Full Hand Waxing | $25 |
 | Full Leg Waxing | $45 |
 | Under Arm Waxing | $15 |
-| Full Body Massage | $60 |
+| Full Body Massage | $65 |
 | Back and Neck and Shoulder Massage | $45 |
 | Party Makeup | $25+ |
 
