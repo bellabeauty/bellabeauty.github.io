@@ -8,9 +8,9 @@ Please have a Look of Services that I offer and feel free to contact me if you h
 | Service Name | Price |
 | --- | ----------- |
 | All Basic haircuts (straight,U shape,V shape) | $15+ |
-| Haircut with layers | $20+ |
+| Haircut with layers (only haircut no blow dry) | $20+ |
 | Kids/Teens Haircut | $15+ |
-| Head scalp massage | $30 |
+| Head scalp massage | $35 |
 | Hair Spa for smooth shiny hair | $30+ |
 | Eyebrow threading | $5 |
 | Eyebrow waxing | $7 |
@@ -18,7 +18,7 @@ Please have a Look of Services that I offer and feel free to contact me if you h
 | Upper lip waxing | $7 |
 | Chin waxing | $7 |
 | Chin threading | $5 |
-| Whole Face threading | $30 | 
+| Whole Face threading | $35 | 
 | Fruit Facial | $35 |
 | European Facial with Blackhead Removal (Dermalogica/Shehenaz Gold) | $40 |
 | Anti tan facial(Skinfood) | $40 |
@@ -32,11 +32,11 @@ Please have a Look of Services that I offer and feel free to contact me if you h
 | Hair Blowdry | $15+ |
 | Hair Curling or Straightening | $25+ |
 | Hair Updo | $25+ |
-| Full Hand Waxing | $25 |
-| Full Leg Waxing | $45 |
+| Full Hand Waxing | $25+ |
+| Full Leg Waxing | $45+ |
 | Under Arm Waxing | $15 |
 | Full Body Massage | $65 |
-| Back and Neck and Shoulder Massage | $45 |
+| Back and Neck and Shoulder Massage | $50 |
 | Party Makeup | $25+ |
 
 #### Thank You,
