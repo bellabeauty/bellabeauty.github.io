@@ -24,7 +24,7 @@ Please have a Look of Services that I offer and feel free to contact me if you h
 | Anti tan facial(Skinfood) | $40 |
 | Brighting facial | $35 |
 | Anti aging Collagen facial with Microdermabrasion | $50 |
-| Oxygen Infusion facial with LED light therapy (Anti aging/Deep Hydrating) | $50 |
+| Oxygen Infusion facial with LED light therapy (Anti aging/Deep Hydrating) | $55 |
 | Bleach application in facial | $7 |
 | Only bleach application no facial | $15 |
 | Haircolor Application/Henna Application (with customer hair color/Henna ) (No Hair wash ) | $20 |
