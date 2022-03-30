@@ -29,14 +29,14 @@ Please have a Look of Services that I offer and feel free to contact me if you h
 | Only bleach application no facial | $15 |
 | Haircolor Application/Henna Application (with customer hair color/Henna ) (No Hair wash ) | $20 |
 | Haircolor Application + My Hair Color Product (No Hair wash) | $35 |
-| Hair Blowdry | $15+ |
+| Hair Blowdry | $20+ |
 | Hair Curling or Straightening | $25+ |
 | Hair Updo | $25+ |
-| Full Hand Waxing | $25+ |
-| Full Leg Waxing | $45+ |
+| Full Hand Waxing | $35 |
+| Full Leg Waxing | $50 |
 | Under Arm Waxing | $15 |
-| Full Body Massage | $65 |
-| Back and Neck and Shoulder Massage | $50 |
+| Full Body Massage | $70 |
+| Back and Neck and Shoulder Massage | $55 |
 | Party Makeup | $25+ |
 
 #### Thank You,
