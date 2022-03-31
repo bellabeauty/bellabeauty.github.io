@@ -32,8 +32,8 @@ Please have a Look of Services that I offer and feel free to contact me if you h
 | Hair Blowdry | $20+ |
 | Hair Curling or Straightening | $25+ |
 | Hair Updo | $25+ |
-| Full Hand Waxing | $35 |
-| Full Leg Waxing | $50 |
+| Full Hand Waxing | $30+ |
+| Full Leg Waxing | $45+ |
 | Under Arm Waxing | $15 |
 | Full Body Massage | $70 |
 | Back and Neck and Shoulder Massage | $55 |
