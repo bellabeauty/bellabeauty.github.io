@@ -8,7 +8,7 @@ Please have a Look of Services that I offer and feel free to contact me if you h
 | Service Name | Price |
 | --- | ----------- |
 | All Basic haircuts (straight,U shape,V shape) | $18+ |
-| Haircut with layers (only haircut no blow dry) | $30+ |
+| Haircut with layers (only haircut no blow dry) | $25+ |
 | Kids/Teens Haircut | $15+ |
 | Head scalp massage | $40 |
 | Hair Spa for smooth shiny hair | $40+ |
