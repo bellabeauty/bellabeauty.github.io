@@ -21,7 +21,7 @@ Please have a Look of Services that I offer and feel free to contact me if you h
 | Whole Face threading | $35 | 
 | Fruit Facial | $35 |
 | European Facial with Blackhead Removal (Dermalogica/Shehenaz Gold) | $45 |
-| Anti tan facial(Skinfood) | $45 |
+| Anti tan facial(Skinfood) | $50 |
 | Brighting facial | $40 |
 | Anti aging Collagen facial with Microdermabrasion | $60 |
 | Oxygen Infusion facial with LED light therapy (Anti aging/Deep Hydrating) | $70 |
