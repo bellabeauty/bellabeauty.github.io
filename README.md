@@ -19,7 +19,7 @@ Please have a Look of Services that I offer and feel free to contact me if you h
 | Chin waxing | $10 |
 | Chin threading | $7 |
 | Whole Face threading | $35 | 
-| Fruit Facial | $35 |
+| Fruit Facial (VLCC) | $35 |
 | European Facial with Blackhead Removal (Dermalogica/Shehenaz Gold) | $45 |
 | Anti tan facial(Skinfood) | $50 |
 | Brighting facial | $40 |
