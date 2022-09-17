@@ -25,6 +25,7 @@ Please have a Look of Services that I offer and feel free to contact me if you h
 | Brighting facial | $40 |
 | Anti aging Collagen facial with Microdermabrasion | $60 |
 | Oxygen Infusion facial with LED light therapy (Anti aging/Deep Hydrating) | $70 |
+| Microdermabrasion + Oxygen Infusion combo facial | $80 |
 | Bleach application in facial | $10 |
 | Only bleach application no facial | $22 |
 | Back polishing/facial | $50 |
