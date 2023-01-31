@@ -14,7 +14,7 @@ Please have a Look of Services that I offer and feel free to contact me if you h
 | Hair Spa for smooth shiny hair | $40+ |
 | Eyebrow threading | $7 |
 | Eyebrow waxing | $10 |
-| Upper lip threading | $5 |
+| Upper lip threading | $7 |
 | Upper lip waxing | $7 |
 | Chin waxing | $10 |
 | Chin threading | $7 |
