@@ -10,7 +10,7 @@ Please have a Look of Services that I offer and feel free to contact me if you h
 | All Basic haircuts (straight,U shape,V shape) | $18+ |
 | Haircut with layers (only haircut no blow dry) | $25+ |
 | Kids/Teens Haircut | $15+ |
-| Head scalp massage | $40 |
+| Head scalp massage | $45 |
 | Hair Spa for smooth shiny hair | $40+ |
 | Eyebrow threading | $7 |
 | Eyebrow waxing | $10 |
