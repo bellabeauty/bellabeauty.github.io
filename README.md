@@ -9,8 +9,8 @@ Please have a Look of Services that I offer and feel free to contact me if you h
 | --- | ----------- |
 | All Basic haircuts (straight,U shape,V shape) | $18+ |
 | Haircut with layers (only haircut no blow dry) *prices vary depending upon type of haircut, length and density.| $25 and up |
-| Kids/Teens Haircut | $15+ |
-| Head scalp massage | $50 |
+| Kids/Teens Haircut | $18+ |
+| Head scalp massage | $55+ |
 | Hair Spa for smooth shiny hair | $45+ |
 | Eyebrow threading | $7 |
 | Eyebrow waxing | $10 |
@@ -26,6 +26,7 @@ Please have a Look of Services that I offer and feel free to contact me if you h
 | Anti aging Collagen facial with Microdermabrasion | $65 |
 | Oxygen Infusion facial with LED light therapy (Anti aging/Deep Hydrating) | $70 |
 | Microdermabrasion + Oxygen Infusion combo facial | $80 |
+| Anti aging Derma Glow with LED light | $85 |
 | Bleach application in facial | $10 |
 | Only bleach application no facial | $22 |
 | Back polishing/facial | $50 |
@@ -37,10 +38,10 @@ Please have a Look of Services that I offer and feel free to contact me if you h
 | Hair Curling or Straightening | $25+ |
 | Hair Updo | $35+ |
 | Full Hand Waxing | $35+ |
-| Full Leg Waxing | $50+ |
+| Full Leg Waxing | $55+ |
 | Under Arm Waxing | $15 |
-| Full Body Massage | $85 |
-| Back and Neck and Shoulder Massage | $65 |
+| Full Body Massage | $85+ |
+| Back and Neck and Shoulder Massage | $65+|
 | Party Makeup | $35+ |
 
 #### Thank You,
