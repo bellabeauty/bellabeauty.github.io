@@ -18,7 +18,8 @@ Please have a Look of Services that I offer and feel free to contact me if you h
 | Upper lip waxing | $7 |
 | Chin waxing | $10 |
 | Chin threading | $7 |
-| Whole Face threading | $40 | 
+| Whole Face threading | $40 |
+| Face cleanup | $35 |
 | Fruit Facial (VLCC) | $40 |
 | European Facial with Blackhead Removal (Dermalogica/Shehenaz Gold) | $50 |
 | Anti tan facial(Skinfood) | $55 |
