@@ -21,15 +21,15 @@ Please have a Look of Services that I offer and feel free to contact me if you h
 | Whole Face threading | $40 |
 | Face cleanup | $35 |
 | Fruit Facial (VLCC) | $40 |
-| European Facial with Blackhead Removal (Dermalogica/Shehenaz Gold) | $50 |
+| European Facial with Blackhead Removal (Dermalogica/Shehenaz Gold) | $55 |
 | Anti tan facial(Skinfood) | $55 |
-| Brighting facial | $45 |
-| Anti aging Collagen facial with Microdermabrasion | $65 |
-| Oxygen Infusion facial with LED light therapy (Anti aging/Deep Hydrating) | $70 |
-| Microdermabrasion + Oxygen Infusion combo facial | $80 |
+| Brighting facial | $50 |
+| Anti aging Collagen facial with Microdermabrasion | $70 |
+| Oxygen Infusion facial with LED light therapy (Anti aging/Deep Hydrating) | $75 |
+| Microdermabrasion + Oxygen Infusion combo facial | $85 |
 | Anti aging Derma Glow with LED light | $85 |
 | Bleach application in facial | $10 |
-| Only bleach application no facial | $22 |
+| Only bleach application no facial | $25 |
 | Back polishing/facial | $50 |
 | Hands polishing | $40 |
 | Legs polishing | $55 |
